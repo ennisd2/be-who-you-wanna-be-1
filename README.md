@@ -1,1 +1,1 @@
-# be-who-you-wanna-be
+# Lifestyle-Konec an e-Commerce Service for the community 
